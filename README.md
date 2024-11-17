@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @FrederickKuti
+- 👀 I’m interested in web design
+- 📫 How to reach me (frederickkutigeorge@gmail.com)
